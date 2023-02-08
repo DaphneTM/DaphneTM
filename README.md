@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋, I'm [Daphne T Machangara](https://www.linkedin.com/in/daphne-machangara-a5688a112/)
 
 <!--
 **DaphneTM/DaphneTM** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
